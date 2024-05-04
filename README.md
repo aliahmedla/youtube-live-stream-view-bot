@@ -1,5 +1,5 @@
 # youtube-live-stream-premium
-Master the art Master the art of Boosting Your Livestream Engagement with Organic Growth from 1000 different logged in YouTube channel.
+Master the art of Boosting Your Livestream Engagement with Organic Growth from 1000 different logged in YouTube channel.
 This is my channel Link you can contact me on Instagram in video description:
 [https://www.youtube.com/watch?v=JFOB-3HWTJI&t=236s](url)
 
